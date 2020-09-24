@@ -1,2 +1,2 @@
-# jaywonder20.github.io
+# Surekha Ramireddy Portfolio
 portfolio
